@@ -21,7 +21,7 @@
 ---
 
 ## 🌐 Onde me encontrar
-- [LinkedIn](www.linkedin.com/in/marcos-alves21)  
+- www.linkedin.com/in/marcos-alves21  
 - ✉️ Email: marcosantonio210999@gmail.com  
 
 ---
